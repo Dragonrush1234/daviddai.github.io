@@ -1,2 +1,0 @@
-# daviddai.github.io
-Website
